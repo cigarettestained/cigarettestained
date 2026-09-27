@@ -11,4 +11,5 @@
 
 
 ⠀ ╰⠀⠀ ⠀  ᡕᠵデᡁ᠊╾━⠀Any nickname⠀⠀⠀◞⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀  ‍ⓘ mainly not on pt unless w someone . . C+H ✓
- <img width="498" height="281" alt="ezgif-31c5b27ee6ae679e" src="https://github.com/user-attachments/assets/12cd4c22-d2bc-43c4-a522-d5d0cfd35344" /> <img width="498" height="281" alt="ezgif-31c5b27ee6ae679e" src="https://github.com/user-attachments/assets/12cd4c22-d2bc-43c4-a522-d5d0cfd35344" />
+
+⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀<img width="498" height="281" alt="ezgif-31c5b27ee6ae679e" src="https://github.com/user-attachments/assets/12cd4c22-d2bc-43c4-a522-d5d0cfd35344" />
