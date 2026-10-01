@@ -1,18 +1,3 @@
-(13+) → 18+ can int but i wont friend u
-
-
-<img width="500" height="234" alt="download (5)" src="https://github.com/user-attachments/assets/07857f38-f113-443a-8652-ca3672719039" />
-⠀ "But im staring at her tits, its the wrong way" 𓂃🍂 
-
-
-⠀ ╭⠀ ⠀ ⠀ ⠀︵︵︵ ๑ ♡ ๑ ︵︵︵ ⠀ ⠀ ⠀◝
-‍‍⠀   <img width="500" height="226" alt="pixels and things" src="https://github.com/user-attachments/assets/8cdc1484-d42a-451c-93dd-a6e5e9e6ad34" />
-
-
-
-⠀ ╰⠀⠀ ⠀  Dont take inspo or copy..⠀⠀⠀◞⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀  ‍ⓘ mainly not on pt unless w someone . C+H ✓
-
-⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀<img width="498" height="281" alt="ezgif-31c5b27ee6ae679e" src="https://github.com/user-attachments/assets/12cd4c22-d2bc-43c4-a522-d5d0cfd35344" />
-
-
-⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ︵ feel free to look at my link crap ੭﹕﹒
+<img width="1920" height="1080" alt="image" src="https://github.com/user-attachments/assets/76361531-6763-48bc-9c3b-8bc32da38dab" />
+<img width="2048" height="2048" alt="image" src="https://github.com/user-attachments/assets/441962f4-f1d5-479b-84db-94f0e983edc7" />
+<img width="1920" height="1080" alt="image" src="https://github.com/user-attachments/assets/90655d3d-3352-4d94-ad19-993041905d13" />
