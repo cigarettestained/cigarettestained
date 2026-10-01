@@ -2,7 +2,7 @@
 
 
 <img width="500" height="234" alt="download (5)" src="https://github.com/user-attachments/assets/07857f38-f113-443a-8652-ca3672719039" />
-⠀ "Without trust we are nothing" 𓂃🍂 
+⠀ "But im staring at her tits, its the wrong way" 𓂃🍂 
 
 
 ⠀ ╭⠀ ⠀ ⠀ ⠀︵︵︵ ๑ ♡ ๑ ︵︵︵ ⠀ ⠀ ⠀◝
