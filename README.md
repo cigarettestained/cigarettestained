@@ -14,7 +14,7 @@ C+H always unless i say otherwise <img width="20" height="20" alt="image" src="h
 ㅤㅤㅤㅤㅤㅤㅤ
 ㅤㅤ
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-ㅤㅤㅤ<img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/52e1125e-3fa8-466e-b3ca-0e5d6e6b4d97" />
+ㅤ<img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/52e1125e-3fa8-466e-b3ca-0e5d6e6b4d97" />
 
 <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/b511fc70-b8da-4282-bcc2-00e6e7517b56" />
 <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/05b91bc9-cb31-47a3-b2a0-336e69c71c32" />
