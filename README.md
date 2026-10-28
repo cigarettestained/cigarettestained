@@ -6,7 +6,7 @@
 <img width="275" height="30" alt="image" src="https://github.com/user-attachments/assets/dd3feb78-a1dc-4d30-9a43-3e3eab23aca7" />
 
 
-18+ users can interact, but iwc and keep in note im not befriending you
+18+ users can interact, but iwc PLS thank you!!
 
 C+H always unless i say otherwise <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/bb20c92f-6046-471c-90e3-f13aa3516c0e" />
 
